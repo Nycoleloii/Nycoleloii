@@ -9,4 +9,4 @@
 - Preferencialmente por mensagem no WhatsApp 
 - Dificilmente atendo ligações  
 😄 Pronomes: Ela/Dela  
-⚡ Curiosidade divertida: Sou apaixonada pelo personagem Sanji de One Piece!
+⚡ Curiosidade divertida: Sou apaixonada por One Piece!
